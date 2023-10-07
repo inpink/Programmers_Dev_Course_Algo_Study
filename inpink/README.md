@@ -1,1 +1,1 @@
-https://blog.naver.com/willyouspeedup/223043550616
+풀이 올리는 블로그 주소 : https://blog.naver.com/inpink_/223043550616
